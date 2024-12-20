@@ -1,0 +1,2 @@
+# GIRLS-FRONTLINE-2-EXILIUM-MOD-unlimited-gems
+GIRLS' FRONTLINE 2: EXILIUM MOD unlimited gems
